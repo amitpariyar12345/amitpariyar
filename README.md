@@ -1,2 +1,0 @@
-# amitpariyar
-apple
